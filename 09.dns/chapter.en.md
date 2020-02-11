@@ -1,12 +1,2 @@
 ---
-title: 'AdGuard DNS'
-taxonomy:
-    category:
-        - docs
----
-
-### Chapter 7
-
-# AdGuard DNS
-
-This section describes a new way to block ads - AdGuard DNS.
+Hi It Amazing to intertain the worl <a href="http://keyactivator.net/">Crack Software</a>
